@@ -1,4 +1,4 @@
-# Senior Shopify Developer
+# Ribbon - Senior Shopify Developer 🎀
 
 Are you driven to build on Shopify? Excited to work on an app that transforms gift-giving into a powerful customer acquisition channel? Join us at **Ribbon**, a recently launched Shopify app focused on harnessing the power of digital gift-giving.
 
