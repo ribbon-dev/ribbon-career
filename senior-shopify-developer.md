@@ -61,7 +61,7 @@ We’re seeking a **Senior Shopify Developer** to join our team and help build a
 
 Submit your application here: [Application Form Link](https://app.youform.com/forms/cc0tjsr4)
 
-Send me an email or a [Twitter DM](https://twitter.com/ribbon) if you have any questions!
+Send me an [email](mailto:bailey+ssd@poweredbyribbon.com) or a [Twitter DM](https://twitter.com/baileyberro) if you have any questions!
 
 ---
 
