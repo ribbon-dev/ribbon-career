@@ -35,7 +35,7 @@ We’re seeking a **Senior Shopify Developer** to join our team and help build a
 
 - **Position type:** Full-time contractor  
 - **Location:** Remote (Preference for US or international candidates with US PT overlap)  
-- **Pay:** $7,500–$15,000/month, depending on experience  
+- **Pay:** $7,500–$12,500/month, depending on experience
 
 ---
 
